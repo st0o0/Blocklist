@@ -60441,7 +60441,7 @@ www.kuasis.com
 www.capitalisthq.com
 vc-com-id48838710.000webhostapp.com
 www.wwwhg9598.com
-## 36865 Domains added:
+## 36866 Domains added:
 wdestaques14.maemereceissotudo.com
 wandasgroup.com
 oboticario.online
@@ -60935,8 +60935,8 @@ lordkrishnaschool.co.in
 0.0.0.0 szklarnie.club
 thevision.ro
 leashnow.com
-waroncorona.com
 www.wwwvoscompteslabanquepostalepars.com
+waroncorona.com
 0.0.0.0 srvncdnsrvserv.us
 jnmiaosha.com
 page654224242.com
@@ -60992,8 +60992,8 @@ fgtyuyui.ml
 cfoj5i94okqw.biz
 www.perfectimpactgolf.com
 manboupkios.com
-deriheru24h.com
 undanganwhatshapshots.wikaba.com
+deriheru24h.com
 0.0.0.0 www.bzn.c0.pl
 sovcmefazbemhoje.com
 www.manedaengbrs.net
@@ -61340,8 +61340,8 @@ joyakalma.blogspot.com
 www.mflgruop.com
 0.0.0.0 www.curtainhardsh3.live
 uk.huagol.com
-www.paypauseonline.info
 gaus-skin.com
+www.paypauseonline.info
 xtchawd.goruli.com
 www.altayyabaintl.com
 xn--secure-bakofamerica-oid.net
@@ -61552,8 +61552,8 @@ scancity.am
 eb5uniteds.com
 habitsofperformance.org
 www.steamcommuntty.com
-diretodabahiac8.com
 ns2.thanwya-online.com
+diretodabahiac8.com
 0.0.0.0 dswfjrncdn.info
 0.0.0.0 terminatorzy.cba.pl
 atckchance.site
@@ -61642,8 +61642,8 @@ comical-purchases.000webhostapp.com
 lootshop.life
 signin.manageservice.appleid.apple.com.noerdo.com
 www.acclits.xyz
-musical-aliases.000webhostapp.com
 somente-nesta-semana-para-voce.com
+musical-aliases.000webhostapp.com
 www.dmh-chrischona.org
 www.interbahis621.com
 kitchenproof.com
@@ -61954,8 +61954,8 @@ www.thnsxxti.com
 netflixsupport.serveirc.com
 super-promocao.mesdeabrilofertas.com
 rsvr.gucac.com
-m-facebookprivaci.webnode.com
 www.pouliostherm.gr
+m-facebookprivaci.webnode.com
 www.leoncup.xyz
 globalinitiative.bar
 omuzgor.tj
@@ -62535,8 +62535,8 @@ sellercentral.amazon.de.id2212.theworkpc.com
 meetabansal.in
 yxto.shoesmogul.com
 www.cbox.cf
-camptheral.com
 review.recentad.io
+camptheral.com
 0.0.0.0 m.topiccore.com
 ezpanz.com
 noelcoutts.com
@@ -64006,8 +64006,8 @@ credit-agricole-securite-renforcee.friseur-andrea.de
 www.primata.tech
 www.feudalismmeaning.com
 defoghurdle.com
-0.0.0.0 jfnikjpowerfjr.nl
 u1566201.ct.sendgrid.net
+0.0.0.0 jfnikjpowerfjr.nl
 messagerievocale-appel.web.app
 www.matbet388.com
 www.rakuten.co.jp.supportaplicationcode52.jp-aplicatioebokendnslinfrntjopinjsoad3asfadum2.xyz
@@ -64204,8 +64204,8 @@ falconconsultants.com.pk
 www.kebepxinh.vn
 swbchurchofchrist-org.bradgfx.com
 www.aniamadejska.com
-wdestaques15.grandequeimadeestoque.com
 getit12.com
+wdestaques15.grandequeimadeestoque.com
 www.luminatti.com
 www.kidsrealtime.com
 www.brickzone.net
@@ -65857,9 +65857,9 @@ www.jiskeid.com
 u15900461.ct.sendgrid.net
 netpersonalizados.com
 meredithcapone.com
-www.tran44app000121.com
 wblrhte.shoesmogul.com
 www.rockstarspangled.com
+www.tran44app000121.com
 respondcritique.xyz
 equalchances.org
 xn--trtkatkpay-3ubd.com
@@ -65929,8 +65929,8 @@ coupondeasls.xyz
 www.pakdesighee.com
 www.dhanang-intan.com
 lowmanids.buzz
-bcpzonasegurabeta.viabcp.com.afrogate.org
 www.hrpayrollsystem.it
+bcpzonasegurabeta.viabcp.com.afrogate.org
 bosswords.co
 www.au-jjh.com
 www.2001o.cc
@@ -66313,8 +66313,8 @@ www.banrural-appusuarios.com
 www.bsb-azeri.biz
 pacificusinfra.com
 brouser.net
-altayyabaintl.com
 web0aruportal0config.theworkpc.com
+altayyabaintl.com
 www.indevconsultancy.com
 intercessional-cros.000webhostapp.com
 somber-pickle-archaeopteryx.glitch.me
@@ -67066,8 +67066,8 @@ www.skllog.ru
 nicedayjp.com
 www.disconnectedreconnected.com
 www.badges-instagramservice.com
-manage.account.service.verfcintrnappsxid.com
 barnsleyharriers.org.uk
+manage.account.service.verfcintrnappsxid.com
 palfix.000webhostapp.com
 akabrto-71.ml
 www.tibmaskan.uz
@@ -67230,6 +67230,7 @@ mt2.gucac.com
 www.paypaonlinetech.live
 appleinfoverify.com
 novabio.co
+usibw.top
 www.frontieraids.org
 chargelikethis.com
 www.ashdownar.buzz
@@ -68523,8 +68524,8 @@ jppost-mi.co
 www.dhbddhbhdy202.com
 facebook.lidia39.club
 www.saltbread.rest
-www.weioen.com
 www.bedtimesnacks.xyz
+www.weioen.com
 vietexmedia.de
 alibaba.com.spatialsys.com.ru
 mesengger-page-safety-admin.000webhostapp.com
@@ -68539,8 +68540,8 @@ thermas.by
 0.0.0.0 www.infoteria.cba.pl
 steamcomunltyy.ml
 pay-pal.com.update.accounts.agrointerandinacolombia.com
-www.amzoneid54620-jp.com
 zieglercorpgroup.com
+www.amzoneid54620-jp.com
 sethsbananacam.com
 www.yongshengde.com
 thelashroomatsalonroxy.com
@@ -69089,8 +69090,8 @@ www.juanaurich.net
 sitocosmetic.com
 www.station120.com
 league0flegends0z6dktk4k.000webhostapp.com
-www.ret.space
 0.0.0.0 skategirlchina.com
+www.ret.space
 aestheticfar.com
 0.0.0.0 info.dyndns.pro
 www.thefountainofknowledge.com
@@ -69129,8 +69130,8 @@ wakecar.cn
 www.new89.cf
 www.accesob23.com
 www.blkblktikblu.com
-xerom.xyz
 www.miciudadreal.es
+xerom.xyz
 facebook-page85221990.com
 www.commercia.store
 facebook-clone-csc-17.gedev.com.ng
@@ -69368,8 +69369,8 @@ www.malaysiadigitalmarketing.com
 viabcp-covid19.xyz
 autenticacao-imediata.com
 www.rusch.nu
-nonvolatile-diesels.000webhostapp.com
 hissty.duckdns.org
+nonvolatile-diesels.000webhostapp.com
 householdlogic.icu
 onthewifi.com
 www.gotdns.ch
@@ -69897,8 +69898,8 @@ www.csgo-run.xyz
 secure.runescape.rs-z.xyz
 xfaceitskin.fun
 youareblackgold.com
-cgp60474.com
 www.paolagilingenieria.com
+cgp60474.com
 adserver.darnell.com
 0.0.0.0 load.collegesmooch.com
 xlxney.cn
@@ -71395,8 +71396,8 @@ pollaclicks.com
 www.domki-komfort.pl
 theclosetministry.com
 syst-suplinnes.ddns.net
-derdvmi.goruli.com
 chasersvancouver.com
+derdvmi.goruli.com
 getstimulusrefund.com
 site.aktifitypages2020.my.id
 hvgcfby.baima84615.cn
@@ -71488,8 +71489,8 @@ marketplaceitem544382396125502.com
 das-home.gr
 se-pn.snprobbx.pbz.r.de.a2ip.ru
 e-childalert.pl
-www.1worldnow.com
 www.sollutions-network.com
+www.1worldnow.com
 www.freeme.biz
 abetterchannel.com
 www.0800-supraprcorremamae10segurapreccs.com
@@ -73150,9 +73151,9 @@ csee-bnpp-idfest.portailce.com
 toooommasssss.000webhostapp.com
 balu014.0catch.com
 www.csgo-roll.ga
-sucursalpersonas.iingresosegurogrupobancolombia.co
-0.0.0.0 fjrikjnrjdswnrj.info
 linuxgive.info
+0.0.0.0 fjrikjnrjdswnrj.info
+sucursalpersonas.iingresosegurogrupobancolombia.co
 www.interbus.cz
 quarentenamagazine.com
 www.support-appswells.mobi
@@ -75084,8 +75085,8 @@ ni.adscash.online
 www.etracking-pocztapolska24.net
 www.impression-gobelet.com
 0.0.0.0 www.marchwithme.pl
-astralisqq.pp.ua
 www.marketplaceitem544382396125502.com
+astralisqq.pp.ua
 www.clubrenaultsport.com
 # [tutelatechnologies.com]
 iphone.com.zvufid.cn
@@ -75560,8 +75561,8 @@ mhuwy.com
 www.katherinegesell.com
 tjbertsch.com
 crtnewslin.000webhostapp.com
-www.lkh8363.com
 0.0.0.0 rawtelemetry-west.servicebus.windows.net
+www.lkh8363.com
 no-reply-apple-com-u59926sa.5566xd.com
 budeshfloorings.com
 shabx.focuspointdesign.com
@@ -77335,8 +77336,8 @@ www.bilimnetweb.com
 0.0.0.0 www.xn--eonetgwat-xub.pl
 gpit.rogagot.com
 professionalomar.com
-runescape-reward.com
 www.bootyopisthenar.com
+runescape-reward.com
 pymcars.com
 0.0.0.0 ncjpowerjfn.in
 instaquake.000webhostapp.com
@@ -77349,8 +77350,8 @@ edok.goruli.com
 cbk.m.dodo52.com
 www.csgotradehub.com
 gsx-certification-update.com
-www.masksglobal.com
 0.0.0.0 stereofotografia.pl
+www.masksglobal.com
 www.jennifersmith1991faceebook.online
 mega-oferta-online.com
 joingrubwa99.vizvaz.com
@@ -77540,8 +77541,8 @@ ofertao-de-familias.com
 zumodelima.com
 com-fl.cz
 www.skgfiltration.com
-cdelk.ru
 veriflap53.com
+cdelk.ru
 cabinetop.com.br
 uxer.goruli.com
 www.torcup.xyz
@@ -78953,8 +78954,8 @@ servicelogsv.z15.web.core.windows.net
 itelligencecoin.baersevensummer.top
 www.lancecood.ch
 kendralana.com
-sultanbettkayit.blogspot.com
 acessoitau-app-card.com
+sultanbettkayit.blogspot.com
 www.kidscoloringpdf.com
 portal-officedocdrive.com
 taucard2.com
@@ -79086,8 +79087,8 @@ staffordpropertygroup.com.au
 www.ingresosegurogrupobancolombia.co
 www.sivancole.com
 aimsure.space
-chat-whatsaap7.giftz1.com
 0.0.0.0 jsdevelopmentq2.live
+chat-whatsaap7.giftz1.com
 www.portal.natwestcreditfinance.com
 nvpx.adhost.se
 0.0.0.0 freeoldsafe.com
@@ -80852,8 +80853,8 @@ www.robertbtc.org
 www.eeplans.com
 ma-computer.com
 sucursalpersonas.transaccionesbancolombialogonsecureldd.alserviciorat-tray.com
-sanantonionamechange.com
 partelier.com
+sanantonionamechange.com
 anasanzcoach.com
 rtylynajh.sweetuprice.su
 hfhff.ooguy.com
@@ -80904,8 +80905,8 @@ www.hubcapguy.com
 stellar-humane-supply.glitch.me
 new-york-alley-31395.pancakeapps.com
 pscincrop.com
-www.masalkahramani.com
 kahanan.co.id
+www.masalkahramani.com
 security.hsbc.manage-securelink.com
 www.aimsure.space
 drivegene.top
@@ -81692,8 +81693,8 @@ support-paypel-id5636f58g2d5.000webhostapp.com
 webmail-zimbra-com-id.000webhostapp.com
 0.0.0.0 srvkcnncdnikj.nl
 0.0.0.0 kdsidsiadsakfsas.com
-simplebruno.fun
 raifreisenonline.com
+simplebruno.fun
 event-duniagames-gratis.000webhostapp.com
 poypaiusrsignasignatureda65dd6f8d3cjggg.000webhostapp.com
 www.vertyswing.com
@@ -82229,8 +82230,8 @@ gabubggrubwhatsapp.join-gruphot.com
 r-rd.ru
 a0431319.xsph.ru
 stevesmithmbe.co.uk
-irs-gov.uc.r.appspot.com
 cosmoia.com
+irs-gov.uc.r.appspot.com
 fixallmultiservicios.com
 bcvbnmsys.com
 balu019.0catch.com
@@ -82689,8 +82690,8 @@ amzoneid54620-jp.com
 www.floristeria-tanatoriom30.com
 0.0.0.0 livechatinc.org
 0.0.0.0 defenswin.com
-www.sethsbananacam.com
 www.chicagopasty.com
+www.sethsbananacam.com
 0.0.0.0 srvpower.info
 owomida.000webhostapp.com
 www.buttonomar.men
@@ -83266,8 +83267,8 @@ suamelhorhora.com
 www.bra-sillion-ame-ri-cas.com
 0.0.0.0 cdn.nanda.vn
 web5797.vweb01.webgamespace.de
-account-appleid-com-tb18qk67.5566xd.com
 www.orlandoyouthsports.icu
+account-appleid-com-tb18qk67.5566xd.com
 www.arislm.com
 longboyulecheng.tavmo.com
 www.secure-onlinesend.com
@@ -83902,8 +83903,8 @@ www.psd2-intesaweb.com
 0.0.0.0 eintracht-verlautenheide.de
 getz1.shop
 www.ourcbds.com
-baileylovesbands.icu
 ani.goruli.com
+baileylovesbands.icu
 earlmalouis.com
 qq522455.mfzj.1377.xyz
 www.acc-arubaaa.com
@@ -84127,8 +84128,8 @@ infomessaging11.org
 analyticsonline.top
 www.qssiglobal.com
 lecafedesartistes.com
-www.vipercloud.in
 www.assistenza-postmobile.com
+www.vipercloud.in
 incrediblepixels.com
 0.0.0.0 curtainhardsh22.live
 sarvghamatan.ir
@@ -84991,8 +84992,8 @@ cenozoic-passages.000webhostapp.com
 chasebanksuli.ddns.net
 csgo-supreme.fun
 www.arc5mac.com
-wwwzonasegurabeta7-viabcp.net
 www.dmminox.com
+wwwzonasegurabeta7-viabcp.net
 viabcp.clientemovil.com
 margopassadorestylist.com
 vanzoumanhuser.com
@@ -85057,8 +85058,8 @@ abiftae.com
 diagrammatic-pushes.000webhostapp.com
 ofertaparamaes.com
 shopphenolv.ch
-7studio.it
 hmrctax-refund-uk.services
+7studio.it
 cd5inlgezyv61q5n246ahxqx0bnlg3.richardhyettlawyernotary.com
 checkpoint.somee.com
 www.iianc.org
@@ -86505,8 +86506,8 @@ bokep.v-25.com
 podemarise.temp.swtest.ru
 tennis-russia.ru
 www.wycana.icu
-www.saldaodo-bahianinho.com
 whatsapjoinwikwik.bkps.tk
+www.saldaodo-bahianinho.com
 securemail-onedrive-com.ssoltecc.com
 www.thebonescratcher.com
 bb.agencia-digitalapp.com
@@ -87182,8 +87183,8 @@ souzaembalagens.com.br
 0.0.0.0 optimalpoland.pl
 www.tinety.xyz
 www.mijning.nl.activatie.web5708.vweb01.webgamespace.de
-adult-xxx.club
 apledstore.com
+adult-xxx.club
 mail55378.xyz
 www.thegraphicdesignerstudio.com
 danticlantern.co.za
@@ -91202,8 +91203,8 @@ qla.shoesmogul.com
 dashboardnottinghamshire.co.za
 getyourslot.com
 0.0.0.0 www.warosprawdzic.is-best.net
-www.dapino.ru
 vps-8237d107.vps.ovh.net
+www.dapino.ru
 0.0.0.0 srvservpbnikjdsw.cn
 www.eltaninservicespteltd.com
 xxpbcruqq.goruli.com
@@ -92571,8 +92572,8 @@ paypal.com.signin.kmslyba.com
 navi-case.su
 www.paddyobriens.com
 www.post-n.top
-www.techprogrammer.tk
 crarefundservices.ca
+www.techprogrammer.tk
 motrem.net
 registromequedoencasamultiweb.com
 marketplace835837578.com
@@ -92641,8 +92642,8 @@ fbpost2913.house-realtors.com
 mail.mail55378.xyz
 www.artemisbet169.com
 8133msc.com
-iammyeconomy.com
 verified.xn--twtter-4va.com.co
+iammyeconomy.com
 grup-mabar-free-fire-batllegrounds.000webhostapp.com
 www.frank303.com
 errorcode-15041.ml
@@ -94113,8 +94114,8 @@ www.verycaraccessorieswebjponline.club
 www.amzosuotem.com
 www.www-cimer-aidatiadeleri-tr-basvuru.com
 www.grandslaminvesting.buzz
-rjbsplzk.rogagot.com
 www.aidatbasvurmagirisi-turkiyegovtr.com
+rjbsplzk.rogagot.com
 wdestaques15.saldaoficaemcasaame.com
 whatsapp18.workzs.com
 www.cgiebayisapidllsigninusingssldllsigninrjdyedudhufebadusrsds.aba.vg
@@ -94198,8 +94199,8 @@ akgdf.goruli.com
 www.sekurovillage.com
 microsoft-service.dns.army
 www.aid-apps1.com
-novinroyapolymer.com
 www.www-m-cdek.ru
+novinroyapolymer.com
 web.page.icloud.account.activity-review.info
 riemx.net
 jmb.shoesmogul.com
@@ -95050,8 +95051,8 @@ case-navi.online
 www.elainecharton.com
 www.nzsports.net
 hxoakshjskshkaskmxn.000webhostapp.com
-unsrp.weblium.site
 classy-dresses.xyz
+unsrp.weblium.site
 www.themehndidesigns.com
 mateszalkaiszc.hu
 flyemirates.lifes.fr.fo
@@ -95834,8 +95835,8 @@ www.account-data-security-setting-user-support-amazon.com
 www.pyramidifms.com
 foerderverein-eislinger-saurierfunde.de
 managed-orderid-verify.qwer-asew.com
-f0436941.xsph.ru
 acessoseguro.zapto.org
+f0436941.xsph.ru
 www.singlets.co
 www.cdek-oformlenie.ru
 dopaminmarketing.com
@@ -96314,8 +96315,8 @@ cliccaecontinua.com
 www.schneiderperu.com
 www.atxpsu.com
 0.0.0.0 www.2i4.pl
-0.0.0.0 dotpay.pocztex-polska.eu
 www.couleursmarrakech.com
+0.0.0.0 dotpay.pocztex-polska.eu
 squarsyssupport1.com
 0.0.0.0 www.polskidziennik.pl
 www.tunnib.us
@@ -96370,8 +96371,8 @@ www18.ofertas26naopercatempoaindatem.com
 0.0.0.0 xz.jave.xyz
 www.myfitnessboost.de
 customer-service.work
-axn.shoesmogul.com
 fariatecnologia.com.br
+axn.shoesmogul.com
 www.paypayrzsenjp.com
 instagramverifity.instagramverifity.tk
 0.0.0.0 torrentzwealmisr.onion.pet
@@ -96970,9 +96971,9 @@ dyannaboutiq.com
 1itaunet-sempre-lado-a-lado-com-voce.000webhostapp.com
 www.aziko9.uz
 www.metaadsnet.com
-propyknifes.club
-royalcrockeryhire.com
 bahsegel.guncelgir.com
+royalcrockeryhire.com
+propyknifes.club
 nepshared.du.r.appspot.com
 mob-fargo.mobi
 0.0.0.0 brilns.com
@@ -97118,8 +97119,8 @@ www.hoysalacreations.com
 www.net4net.net
 tracking-parcel.free-h.net
 www.bill-service-gb.com
-www.authpayments-secure.com
 minhas-linhas-limites-com.ddnslive.com
+www.authpayments-secure.com
 hbejedilyf.sweetwprice.su
 cbdmillionaires.com
 grupwa-khususdewasaa18.wa-xxx.com
@@ -97209,8 +97210,8 @@ fb.sarahhamilton-profile-11489.online
 bestchange.ru.btc-ex.buzz
 twentfor.rest
 www.steamap.tk
-evidenced-rain.000webhostapp.com
 amolfoodproducts.com
+evidenced-rain.000webhostapp.com
 www.7066k.com
 aayushjyotirmaan.com
 gayejackiepat.ru
