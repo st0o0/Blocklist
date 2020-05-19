@@ -7,3 +7,6 @@ Every week new update
 ### 180520
 * Domains added: 36865
 * Domains deleted: 60441
+### 190520
+* Domains added: 36865
+* Domains deleted: 60441
